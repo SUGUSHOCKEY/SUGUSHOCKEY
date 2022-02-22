@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SUGUSHOCKEY
+- 👀 I’m interested in codeing.
+- 🌱 I’m currently learning code HTML CSS Javascript PHP SQL.
+- 💞️ I’m looking to collaborate on discord.
+- 📫 How to reach me IG:sugus_hc or Discord:SuGuS_HC#5122.
